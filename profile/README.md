@@ -1,0 +1,4 @@
+- SonicSpin Forum: https://www.sonicspin.org/
+- Sonic Wiki: https://sonic.wiki/
+- SonicSpin Resource: https://res.sonicspin.org/
+- Sonic Fan Sub: https://sonicfansub.com/
