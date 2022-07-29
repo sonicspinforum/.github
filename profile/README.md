@@ -9,3 +9,6 @@ You can also join our QQ Channel 你也可以加入我们的 QQ 频道: https://
 - Sonic Wiki: https://sonic.wiki/
 - SonicSpin Resource: https://res.sonicspin.org/
 - Sonic Fan Sub: https://sonicfansub.com/
+
+# Sponsor Us 赞助我们
+https://afdian.net/@WrOfficial
